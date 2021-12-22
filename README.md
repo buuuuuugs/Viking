@@ -1,1 +1,3 @@
 # Viking
+
+how to play
